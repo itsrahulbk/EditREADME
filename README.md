@@ -29,7 +29,7 @@ I love to explore a wide range of technologies, but here are some of my favorite
 
 I'm all about collaboration, learning, and building cool stuff together. You can find me on:
 
-- 👔 **LinkedIn:** [Rahul Babu](https://www.linkedin.com/in/rahul-babu/)
+- 👔 **LinkedIn:** [Rahul Babu K](https://www.linkedin.com/in/rahulbabuk/)
 
 Feel free to reach out for questions, collaborations, or just to say hi! Let's embark on this coding journey together and make some magic happen. ✨💻
 
